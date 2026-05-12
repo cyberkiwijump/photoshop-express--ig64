@@ -1,4 +1,4 @@
-# 
+# custom Photoshop Express for macOS Helper | auto-enhance + collaboration-tools is the best Photoshop Express for macOS helper, featuring auto-enhance and collaboration-tools.
 
 
 
